@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on coding
 - 🤔 I’m looking for help when needed 
 - 💬 Ask me about the things I have knowledge about
-- 📫 How to reach me: you cant 
+- 📫 How to reach me: you can't
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: life: i was almost going to die because of anesthesia
 - https://www.tigers-world.com/wp-content/uploads/Bengal.jpg
