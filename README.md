@@ -15,4 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: life: i was almost going to die because of anesthesia
 - https://www.tigers-world.com/wp-content/uploads/Bengal.jpg
 - https://www.youtube.com/
-d
+I lke watermelon
+I am from this world 
+I play chess
+![66f-1](https://user-images.githubusercontent.com/112802508/204133788-a62a077e-f4c2-4d5f-9e16-72a6bde84cb2.jpg)
+
