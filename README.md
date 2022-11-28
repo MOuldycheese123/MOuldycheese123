@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 - https://www.youtube.com/
 I lke watermelon
 I am from this world 
-I play chess
+I play like to play chess
 ![66f-1](https://user-images.githubusercontent.com/112802508/204133788-a62a077e-f4c2-4d5f-9e16-72a6bde84cb2.jpg)
 
